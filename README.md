@@ -64,4 +64,4 @@ In a competitive retail landscape, **data-driven decisions** are essential for s
 🔮 The future of retail is **smart, predictive, and AI-powered**—let’s innovate together! 🚀
 
 ## 📬 Contact
-If you have any questions or feedback, feel free to reach out via [LinkedIn](http://www.linkedin.com/in/michelle-tzeng-336a441a6) or email at michelletzengcontact@example.com.
+If you have any questions or feedback, feel free to reach out via [LinkedIn](http://www.linkedin.com/in/michelle-tzeng-336a441a6) or email at michelletzengcontact@gmail.com.
